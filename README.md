@@ -1,4 +1,5 @@
 # 💫 About Me:
+Currently a CE student
 AI enthusiast in progress...
 
 
